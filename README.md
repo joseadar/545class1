@@ -1,5 +1,4 @@
 # 545class1
 Lalaland
 
-
-Alexi was here :)
+Alex was here. ISSUE: Lalaland needs better drink specials. @joseadar 
